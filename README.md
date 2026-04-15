@@ -1,0 +1,1 @@
+# IASSC-Six-Sigma-Black-Belt-Study-Guide
